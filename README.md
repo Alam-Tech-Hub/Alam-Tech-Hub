@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Alam-Tech-Hub
-- 👀 I’m Interested in learmimg In Real World Problem
+- 👀 I’m Interested deep learmimg In Real World Problem
 - 🌱 I’m currently learning B.Tech
 - 💞️ I’m looking to collaborate on Everbody whose known me
 - 📫All of U Reach me www.linkedin.com/in/alam12300
