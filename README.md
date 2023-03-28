@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Alam-Tech-Hub
 - 👀 I’m Interested deep learmimg In Real World Problem
-- 🌱 I’m currently learning B.Tech
+- 🌱 I’m currently persuing B.Tech
 - 💞️ I’m looking to collaborate on Everbody whose known me
 - 📫All of U can Reach me via this link www.linkedin.com/in/alam12300
 
